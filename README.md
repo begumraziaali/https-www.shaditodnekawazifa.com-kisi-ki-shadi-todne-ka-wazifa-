@@ -1,0 +1,2 @@
+# https-www.shaditodnekawazifa.com-kisi-ki-shadi-todne-ka-wazifa-
+Kisi Ki Shadi Todne Ka wazifa Kisi Ki Shadi Todne Ka wazifa agar aapka jeevan saathi? jisse aap bohat jada pyaar karte ho Kisi Ki Shadi Todne Ka wazifa ? in any case, uske bina nahi reh sakte? so unki shadi kanhi or ho rahi hai .so aap usko breakup chahte ho? uske baad aap us? ki help se apne pass bulana chahten hai. in any case sakten hai, we are with you.  Boyfriend Ki Shadi Todne Ka Wazifa
